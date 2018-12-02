@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Basically I'm **great** at everything. I have mad **ninja** skills too. Did I mention that I am *superb* at golf?
